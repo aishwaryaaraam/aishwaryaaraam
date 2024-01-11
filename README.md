@@ -14,8 +14,3 @@ Here are some ideas to get you started:
  😄 Pronouns: ... She/Her
 - ⚡ Fun fact: ...
 -->
- 🔭 I’m currently working on ... Making myself classy <br>
- 🌱 I’m currently learning ... How to become classy <br>
- 💬 Ask me about ... Being classy <br>
- 📫 How to reach me: ... You can't <br>
- 😄 Pronouns: ... She/Her <br>
